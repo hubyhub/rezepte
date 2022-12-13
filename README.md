@@ -21,3 +21,5 @@
 3. Zwiebel in Butter glasig anrösten
 4. Zwiebel, Käse, Eier, Schnittlauch und Petersilie, Mehl, Salz mit Semmelwürfel vermischen
 5. Knödel formen und in einer Pfanne braten
+
+[Gute Küche](https://www.gutekueche.at/kaspressknoedel-rezept-2152)
