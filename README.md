@@ -1,5 +1,9 @@
 # Rezepte
 
+## Tipps
+[keep chicken juicy](https://youtube.com/shorts/ITPOSriLjtM?si=hHq9onnx0KYrNgLL)
+
+
 ## Kaspressknödel
 
 ![](https://www.gutekueche.at/storage/media/recipe/56859/resp/kaspressknoedel___webp_780_520.webp "Kaspressknödel")
