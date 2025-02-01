@@ -2,6 +2,7 @@
 
 ## Tipps
 [keep chicken juicy](https://youtube.com/shorts/ITPOSriLjtM?si=hHq9onnx0KYrNgLL)
+[Korean Eggs](https://youtube.com/shorts/R_xIKMAK36E?si=num0a3fDv-MIzCvR)
 
 
 ## Kaspressknödel
