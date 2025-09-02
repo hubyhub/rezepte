@@ -30,3 +30,39 @@
 5. Knödel formen und in einer Pfanne braten
 
 [Gute Küche](https://www.gutekueche.at/kaspressknoedel-rezept-2152)
+
+## Linsen-laibchen mit Zwiebel-sauce und Erdäpfel-pürree
+Quelle: [youtube](https://www.youtube.com/watch?v=TbAH2Xl30TM&ab_channel=GesundeRezepte)
+
+### Für die Laibchen
+* ca. 2 Tassen gekochte Linsen, oder eine große Dose vom Hofer und etwas mehr von unteren Zutaten.
+* 1 kleine Zwiebel, fein gehackt
+* 1 Knoblauchzehe, fein gehackt
+* 1 Karotte, gerieben
+* 2 EL Haferflocken
+* 2 EL Paniermehl (Semmelbrösel)
+* 1 EL Tomatenmark
+* 1 TL Senf
+* Salz, Pfeffer, Paprikapulver
+* OPTIONAL: 1 Ei, Essig
+* Öl zum Braten
+
+Alles zusammenmischen, Laibchen formen und braten. 
+Falls die Laibchen etwas zu flüssig sind, mehr Semmelbrösel nehmen.
+
+###Für die Zwiebelsoße:
+ • 2 Zwiebeln
+ • 1 EL Mehl
+ • 250 ml Gemüsebrühe (ca. 1 Tasse)
+ • 1 TL Sojasoße
+ • Öl, Salz, Pfeffer
+
+Zwiebel anbraten, mit etwas Mehl bestäuben, dann Gemüsebrühe und soja-sauce dazugeben und einkochen lassen.
+salzen pfeffern und evtl durch ein sieb abseihen. 
+
+
+
+
+
+
+
