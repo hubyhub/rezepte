@@ -50,12 +50,12 @@ Quelle: [youtube](https://www.youtube.com/watch?v=TbAH2Xl30TM&ab_channel=Gesunde
 Alles zusammenmischen, Laibchen formen und braten. 
 Falls die Laibchen etwas zu flüssig sind, mehr Semmelbrösel nehmen.
 
-###Für die Zwiebelsoße:
- • 2 Zwiebeln
- • 1 EL Mehl
- • 250 ml Gemüsebrühe (ca. 1 Tasse)
- • 1 TL Sojasoße
- • Öl, Salz, Pfeffer
+### Für die Zwiebelsoße:
+ * 2 Zwiebeln
+ * 1 EL Mehl
+ * 250 ml Gemüsebrühe (ca. 1 Tasse)
+ * 1 TL Sojasoße
+ * Öl, Salz, Pfeffer
 
 Zwiebel anbraten, mit etwas Mehl bestäuben, dann Gemüsebrühe und soja-sauce dazugeben und einkochen lassen.
 salzen pfeffern und evtl durch ein sieb abseihen. 
