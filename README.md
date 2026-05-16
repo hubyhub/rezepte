@@ -10,6 +10,12 @@
 ## Keto
 [Wilde Sau Torte](https://www.merkur.de/leben/genuss/torte-macht-in-20-minuten-suechtig-diese-wilde-sau-94301957.html)
 
+Für den Boden
+- 200 g gemahlene Mandeln oder Mandelmehl
+- 100 g geschmolzenes Kokosöl oder Butter
+- Ei (optional, für mehr Stabilität)
+
+Alles vermischen, in eine Form drücken und kaltstellen, bis die Masse fest ist.
 
 ## Kaspressknödel
 
