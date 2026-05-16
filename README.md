@@ -7,6 +7,10 @@
 * [Spanisches Omelette](https://youtube.com/shorts/bSERj23wFzs?si=HBEdwooxCStzM1KQ)
 
 
+## Keto
+[Torte](https://www.merkur.de/leben/genuss/torte-macht-in-20-minuten-suechtig-diese-wilde-sau-94301957.html)
+
+
 ## Kaspressknödel
 
 ![](https://www.gutekueche.at/storage/media/recipe/56859/resp/kaspressknoedel___webp_780_520.webp "Kaspressknödel")
