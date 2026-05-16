@@ -8,7 +8,7 @@
 
 
 ## Keto
-[Torte](https://www.merkur.de/leben/genuss/torte-macht-in-20-minuten-suechtig-diese-wilde-sau-94301957.html)
+[Wilde Sau Torte](https://www.merkur.de/leben/genuss/torte-macht-in-20-minuten-suechtig-diese-wilde-sau-94301957.html)
 
 
 ## Kaspressknödel
