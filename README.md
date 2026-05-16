@@ -17,6 +17,8 @@ Für den Boden
 
 Alles vermischen, in eine Form drücken und kaltstellen, bis die Masse fest ist.
 
+[Schokolade Torte ohne Mehl(www.backenmachtgluecklich.de/rezepte/saftiger-schokoladenkuchen-ohne-mehl.html)
+
 ## Kaspressknödel
 
 ![](https://www.gutekueche.at/storage/media/recipe/56859/resp/kaspressknoedel___webp_780_520.webp "Kaspressknödel")
