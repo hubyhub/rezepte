@@ -7,7 +7,7 @@
 * [Spanisches Omelette](https://youtube.com/shorts/bSERj23wFzs?si=HBEdwooxCStzM1KQ)
 
 ## Schokotorte ohne Mehl
-[Original - Rezept](https//www.backenmachtgluecklich.de/rezepte/saftiger-schokoladenkuchen-ohne-mehl.html)
+[Original - Rezept](https://www.backenmachtgluecklich.de/rezepte/saftiger-schokoladenkuchen-ohne-mehl.html)
 
 
 
@@ -23,7 +23,7 @@ Alles vermischen, in eine Form drücken und kaltstellen, bis die Masse fest ist.
 
 
 ### Keto Pizza
-[Keto Pizza - youttube](https://www.youtube.com/watch?v=JPH4jwcQUjA)
+[Keto Pizza - youtube](https://www.youtube.com/watch?v=JPH4jwcQUjA)
 250 g Cottage Cheese 
 4 Eier
 30 g geriebener Parmesan 
