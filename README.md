@@ -8,7 +8,7 @@
 
 ## Schokotorte ohne Mehl
 [Original - Rezept](https://www.backenmachtgluecklich.de/rezepte/saftiger-schokoladenkuchen-ohne-mehl.html)
-
+![Original Rezept](https://www.backenmachtgluecklich.de/media/2016/08/Saftiger-Schokokuchen-ohne-Mehl-730x395.jpg)
 
 
 ## Keto
