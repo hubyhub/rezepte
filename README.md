@@ -8,6 +8,7 @@
 
 ## Schokotorte ohne Mehl
 [Original - Rezept](https://www.backenmachtgluecklich.de/rezepte/saftiger-schokoladenkuchen-ohne-mehl.html)
+
 ![Original Rezept](https://www.backenmachtgluecklich.de/media/2016/08/Saftiger-Schokokuchen-ohne-Mehl-730x395.jpg)
 
 
@@ -38,8 +39,7 @@ Danach mit tomatensauce und Pizza Zutaten belegen. und in den Ofen/PizzaOfen
 
 
 ## Kaspressknödel
-
-![](https://www.gutekueche.at/storage/media/recipe/56859/resp/kaspressknoedel___webp_780_520.webp "Kaspressknödel")
+![](https://www.gutekueche.at/storage/media/recipe/139658/resp/kaspressknoedel___webp_940_705.webp)
 
 * 250	g	Semmelwürfel
 * 125	ml	Milch (warm)
