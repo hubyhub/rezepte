@@ -25,15 +25,15 @@ Alles vermischen, in eine Form drücken und kaltstellen, bis die Masse fest ist.
 
 ### Keto Pizza
 [Keto Pizza - youtube](https://www.youtube.com/watch?v=JPH4jwcQUjA)
-250 g Cottage Cheese 
-4 Eier
-30 g geriebener Parmesan 
-30 g Mandelmehl
-1 Prise Backpulver
-1 TL italienische Kräutermischung oder Kräuter nach Wahl
-1 Prise Zwiebelpulver und Knoblauchpulver
-Eir und käse vermixen und mit allen zutaten verühren und bei 200 grad ~20min backen. 
+* 250 g Cottage Cheese 
+* 4 Eier
+* 30 g geriebener Parmesan 
+* 30 g Mandelmehl
+* 1 Prise Backpulver
+* 1 TL italienische Kräutermischung oder Kräuter nach Wahl
+* 1 Prise Zwiebelpulver und Knoblauchpulver
 
+Eier und käse vermixen und mit allen zutaten verühren und bei 200 grad ~20min backen. 
 Danach mit tomatensauce und Pizza Zutaten belegen. und in den Ofen/PizzaOfen
 
 
