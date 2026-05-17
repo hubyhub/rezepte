@@ -7,7 +7,7 @@
 * [Spanisches Omelette](https://youtube.com/shorts/bSERj23wFzs?si=HBEdwooxCStzM1KQ)
 
 ## Schokotorte ohne Mehl
-[Original - Rezept](www.backenmachtgluecklich.de/rezepte/saftiger-schokoladenkuchen-ohne-mehl.html)
+[Original - Rezept](https//www.backenmachtgluecklich.de/rezepte/saftiger-schokoladenkuchen-ohne-mehl.html)
 
 
 
